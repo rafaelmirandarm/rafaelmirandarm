@@ -1,2 +1,2 @@
 Olá sou Rafael Miranda 
-estou querendo colaborar e aprender tambem.
+estou querendo colaborar e aprender também.
